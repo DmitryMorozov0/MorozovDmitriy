@@ -1,0 +1,1 @@
+ne ponyl kak delat poslednie
